@@ -3,7 +3,7 @@
 🎥 **Kênh YouTube “NhanTV.Top”** là nơi mình chia sẻ những điều đã trải qua trong cuộc sống – từ kinh nghiệm cá nhân, các thiết bị đã dùng, mẹo vặt hữu ích, đến các dự án công nghệ và lập trình.  
 > Lấy cảm hứng từ câu nói: **“Hãy cho đi, bạn sẽ nhận được nhiều hơn thế!”**, Nhân mong những chia sẻ nhỏ bé này sẽ phần nào giúp ích cho mọi người.
 
-🌟 Nếu thấy hay, đừng quên để lại **1 like**, **1 bình luận**, **1 đăng ký**, và **chia sẻ** đến người cần nhé!
+🌟 Nếu thấy hay, đừng quên để lại **1 like**, **1 bình luận**, **1 đăng ký**, và **chia sẻ** đến mọi người nhé!
 
 ## 🌐 Kết nối với mình
 
